@@ -1,4 +1,4 @@
-|  Date  |  Reading  |  Vacabulary  |  Listening  |
+|  Date  |  Reading 1 |  Reading 2   |  Reading 3  |
 | - | - | - | - |
-|  24    |           |              |    |
+|  24    |            |              |             |
 
